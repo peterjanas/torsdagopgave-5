@@ -1,0 +1,2 @@
+# torsdagopgave 5
+ 
